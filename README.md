@@ -26,3 +26,10 @@
 - That time I tried to go on a date
 - That time I drank too much on 4th of July
 - That time I learned how to cook
+- That time I became a kleptomaniac
+- That time I got a misdemeanor
+- That time I crashed my mom's car
+- That time I crashed my motorcycle
+- That time my dad and I went to California and back
+- That time Anna and I went on a swamp boat tour
+- That time I saw a bear
