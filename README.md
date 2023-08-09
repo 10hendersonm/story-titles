@@ -15,7 +15,7 @@
 - That time I stopped biking on Mackinac Island
 - Has Anna seen Boondock Saints?
 - That time I tried to log in to a secure environment I wasn't authorized to
-- That time I helped Lettie lose a tooth
+- That time I got caught going through Lettie's snacks
 - That time I stabbed Bucky
 - That time I drove my Jeep into a puddle
 - That time Lettie was placing tracks in Minecraft
