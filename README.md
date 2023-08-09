@@ -23,3 +23,6 @@
 - That time I ruined a pizza
 - That time I ruined Valentine's day dinner
 - That time I ruined Valentine's day dinner again
+- That time I tried to go on a date
+- That time I drank too much on 4th of July
+- That time I learned how to cook
