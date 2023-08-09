@@ -17,3 +17,9 @@
 - That time I tried to log in to a secure environment I wasn't authorized to
 - That time I helped Lettie lose a tooth
 - That time I stabbed Bucky
+- That time I drove my Jeep into a puddle
+- That time Lettie was placing tracks in Minecraft
+- That time Ted and I were playing Pokemon Go
+- That time I ruined a pizza
+- That time I ruined Valentine's day dinner
+- That time I ruined Valentine's day dinner again
