@@ -45,3 +45,4 @@
 - That time Simon's secretary hung up on me
 - That time I didn't see an eagle
 - My first day working at the Renaissance Festival
+- That time I taught Lettie an undisputable fact about hair
