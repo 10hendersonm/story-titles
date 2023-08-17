@@ -41,3 +41,4 @@
 - That time I rode a sheep
 - That time I told Em and Ted a joke
 - That time I heard a ghost
+- That time Lykith banned me from getting raid assist
