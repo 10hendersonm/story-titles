@@ -40,3 +40,4 @@
 - That time with Em and the toad
 - That time I rode a sheep
 - That time I told Em and Ted a joke
+- That time I heard a ghost
