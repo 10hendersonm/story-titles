@@ -46,3 +46,5 @@
 - That time I didn't see an eagle
 - My first day working at the Renaissance Festival
 - That time I taught Lettie an undisputable fact about hair
+- My first snack after getting my tongue pierced
+- That time I grew up but like in a sad depressing way
